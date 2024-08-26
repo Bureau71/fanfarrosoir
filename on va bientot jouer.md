@@ -3,7 +3,7 @@ title: "On va bientôt jouer"
 order: 2
 in_menu: true
 ---
-Le dimanche 1er septembre de 12 h 15 à 14 h sur la place de Colonge (hameau de La Chapelle sous Brancion (71)) dans le cadre du festival Détours en Tournugeois.
+Le dimanche 1er septembre de 12 h 15 à 14 h sur la place de Collonge (hameau de La Chapelle sous Brancion (71)) dans le cadre du festival Détours en Tournugeois.
 
 Le samedi 5 octobre (horaire à préciser) à Montmellard village solidaire.
 
