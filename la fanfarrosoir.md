@@ -18,4 +18,5 @@ Chaque année, nous organisons également, dans des villages du Clunisois une li
 Lien presse : 
 https://www.lejdc.fr/champlemy-58210/actualites/tut-tut-lepicerie-generale-est-passee_14161395/
 
+
 Lien vidéo : https://www.facebook.com/alimentation.generale.culturelle/videos/603393951099918/ 
