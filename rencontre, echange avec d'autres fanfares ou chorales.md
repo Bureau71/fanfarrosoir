@@ -1,6 +1,6 @@
 ---
 title: "Rencontre, échange avec d'autres fanfares ou chorales"
-order: 6
+order: 4
 in_menu: true
 ---
 En 2024 et 2010 l’Autre atelier de Chalon sur Saône 

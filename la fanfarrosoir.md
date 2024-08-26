@@ -1,6 +1,6 @@
 ---
 title: "La Fanfarrosoir"
-order: 5
+order: 1
 in_menu: true
 ---
 Nous sommes La Fanfarrosoir, une fanfare de Saône et Loire. 
