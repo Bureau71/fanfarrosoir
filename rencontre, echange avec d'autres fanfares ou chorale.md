@@ -1,9 +1,9 @@
 ---
-title: "Rencontre, échange avec d'autres fanfares ou chorales"
+title: "Rencontre, échange avec d'autres fanfares ou chorale"
 order: 4
 in_menu: true
 ---
-En 2024 et 2010 l’Autre atelier de Chalon sur Saône 
+En 2024 et 2010 chorale L’autre atelier de Chalon sur Saône 
 En 2018 La Fanflûte de Rochecorbon (37) et Ktipietok Orkestar de Clermont Ferrand (63)
 En 2016 la fraternelle de Saujon (17)
 En 2014 La Pekno de Crest (26)
