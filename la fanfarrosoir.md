@@ -15,5 +15,7 @@ Nous pouvons jouer en fixe ou en déambulation, nous nous adaptons à toutes les
 Ce que nous préférons, c'est jouer pour des rencontres festives, inaugurales, conviviales, jouer sur les marchés, dans les jardins, les parcs.... partout pour des bonnes causes. 
 Chaque année, nous organisons également, dans des villages du Clunisois une livraison de musique à domicile, dans les jardins de ceux qui le souhaitent.  
 
-Lien presse : https://www.lejdc.fr/champlemy-58210/actualites/tut-tut-lepicerie-generale-est-passee_14161395/
-Lien vidéo .    https://www.facebook.com/alimentation.generale.culturelle/videos/603393951099918/ 
+Lien presse : 
+https://www.lejdc.fr/champlemy-58210/actualites/tut-tut-lepicerie-generale-est-passee_14161395/
+
+Lien vidéo : https://www.facebook.com/alimentation.generale.culturelle/videos/603393951099918/ 
