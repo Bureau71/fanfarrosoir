@@ -3,6 +3,8 @@ title: "On va bientôt jouer"
 order: 2
 in_menu: true
 ---
-Le dimanche 1er septembre à 11 h 30 à La Chapelle sous Brancion (71) sur la place de l'église dans le cadre du festival Détours en Tournugeois
+Le dimanche 1er septembre de 12 h 15 à 14 h sur la place de Colonge (hameau de La Chapelle sous Brancion (71)) dans le cadre du festival Détours en Tournugeois.
 
-Le dimanche 20 octobre à 11 h 30 à Cuisery (71) pour le festival Alimenterre 
+Le samedi 5 octobre (horaire à préciser) à Montmellard village solidaire.
+
+Le dimanche 20 octobre de 14 h à 16 h à Cuisery (71) pour le festival Alimenterre 
