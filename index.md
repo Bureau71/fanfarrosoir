@@ -7,3 +7,7 @@ Elle est champêtre, elle est légère, elle va butiner dans tous les jardins mu
 
 
 ![Texte décrivant l'image]({% link images/Fanfarrosoir juin 2022.jpg %}) 
+
+​
+https://soundcloud.com/philippe-bureau-419741020/
+16-roi-de-la-jongle-fanfarrosoir 
