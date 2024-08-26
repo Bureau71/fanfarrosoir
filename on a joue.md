@@ -4,6 +4,9 @@ order: 3
 in_menu: true
 ---
 Quelques manifestations passées :
+
+![Texte décrivant l'image]({% link images/Fanf2.jpg %})
+
 2024 : Mathia Big Band avec la chorale l’autre atelier à Chalon sur Saône, St Germain les Buxy et Cortambert (71), fête de l’été au Breuil (71), Chevagny nouvelles passions à Chevagny sur Guy (71)
 
 2023 : Village des alternatives à Fragnes (71), jardins partagés Neuvy Grand Champ (71), Fête du terroir St Germain des bois (71), Fête de l’école St Ythaire (71), foyers pour migrants Chalon sur Saône (71), Festival des soupes à Tournus (71)
