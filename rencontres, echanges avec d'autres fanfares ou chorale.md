@@ -1,5 +1,5 @@
 ---
-title: "Rencontre, échange avec d'autres fanfares ou chorale"
+title: "Rencontres, échanges avec d'autres fanfares ou chorale"
 order: 4
 in_menu: true
 ---
