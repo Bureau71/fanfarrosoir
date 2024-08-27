@@ -31,7 +31,7 @@ Quelques manifestations passées :
 
 2013 : Cavalcade de Saint Gengoux le national (71), Le grand Tut Tut à Corbigny (58), Festival des soupes à Tournus, Parade d’ouverture de Contes et Lumières à Macon (71), tournée au Bénin (18 jours).
 
-2012 : Marché de noël à Chalon, Carnaval à Dompierre les Ormes (71), Ballade gourmande Bray (71), coupe du monde des Fanfares Dole (39), Jardins en fête Tramailles,  Festival les conviviales à Nanay (58).
+2012 : Marché de noël à Chalon, Carnaval à Dompierre les Ormes (71), Balade gourmande Bray (71), coupe du monde des Fanfares Dole (39), Jardins en fête Tramailles,  Festival les conviviales à Nanay (58).
 
 2011 : Tournée de l’Epicerie Culturelle dans la Nièvre (Nevers et villages) (58), Festival de soupe à Chalon, Fête des feuilles à Lyon (69).
 
