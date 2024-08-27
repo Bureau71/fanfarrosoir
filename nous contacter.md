@@ -16,6 +16,6 @@ Fabienne Baudin
 06 33 14 37 10
 fab.baudin@orange.fr
 
-Michel Gilot
+Michel Gillot
 06 75 28 96 95
 gillotmichel71@outlook.fr 
