@@ -4,7 +4,8 @@ order: 4
 in_menu: true
 ---
 * En 2024 et 2010 chorale L’autre atelier de Chalon sur Saône.
-* En 2018 La Fanflûte de Rochecorbon (37) et Ktipietok Orkestar de Clermont Ferrand (63).
+* En 2019 La Fanfarone de Nancy.
+* En 2018 La Fanflûte de Rochecorbon (37) et Ktipietok Orkestar de Clermont Ferrand.
 * En 2016 la fraternelle de Saujon (17).
 * En 2014 La Pekno de Crest (26).
 * En 2013 Eyo’nlé et Oïlatan de Porto Novo au Bénin.
