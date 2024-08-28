@@ -19,7 +19,7 @@ Quelques manifestations passées :
 
 2019 : Marathon des vins Givry, Ferme de Vernand à Fournaux (42), Cour en fête a Ameugny (71), Fanfares et spaghettis à Nancy (54), tournée dans le nord Etaples, Montreuil sur mer, Merlimont, Huqueliers, Neuville sous Montreuil (62), Nouvelles passions à Chevagny sur Guye (71), Fête de St Nicolas à Nancy (54).
 
-2018 : Bal AK Clermont Ferrand (63), Gourmanziks à St Gengoux le National (71), 30 ans de festival au village à Brioux sur Boutonne (79), Cluny Jazz Campus en Clunysois à Matour (71).
+2018 : Bal AK Clermont Ferrand (63), Gourmanziks à St Gengoux le National (71), 30 ans de festival au village à Brioux sur Boutonne (79), Cluny Jazz Campus en Clunisois à Matour (71).
 
 2017 : Kiosque des Quinconces à Bourg en Bresse (01), (et 2019) Fête de la vigne Givry (71), Septembre imaginaire à Cluny (71), Symphonie des soupes au Creusot (71).
 
