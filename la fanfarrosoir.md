@@ -13,9 +13,9 @@ Nous pouvons jouer en fixe ou en déambulation, nous nous adaptons à toutes les
  
 
 Ce que nous préférons, c'est jouer pour des rencontres festives, inaugurales, conviviales, jouer sur les marchés, dans les jardins, les parcs... partout pour des bonnes causes. 
-Chaque année, nous organisons également, dans des villages du Clunysois une livraison de musique à domicile, dans les jardins de ceux qui le souhaitent.  
+Chaque année, nous organisons également, dans des villages du Clunisois une livraison de musique à domicile, dans les jardins de ceux qui le souhaitent.  
 
-Pour vos oreilles, le roi de la jongle : https://on.soundcloud.com/GTuWUnWPefGysPoN6
+Pour vos oreilles voici le lien du roi de la jongle : https://on.soundcloud.com/GTuWUnWPefGysPoN6
 
 
 Lien vidéo : https://www.facebook.com/alimentation.generale.culturelle/videos/603393951099918/
