@@ -7,7 +7,7 @@ Quelques manifestations passées :
 
 ![Texte décrivant l'image]({% link images/Fanf2.jpg %})
 
-2024 : Mathia Big Band avec la chorale l’autre atelier à Chalon sur Saône, St Germain les Buxy et Cortambert (71), fête de l’été au Breuil (71), Chevagny nouvelles passions à Chevagny sur Guy (71)
+2024 : Mathia Big Band avec la chorale l’autre atelier à Chalon sur Saône, St Germain les Buxy et Cortambert (71), fête de l’été au Breuil (71), Chevagny nouvelles passions à Chevagny sur Guy (71), festival Détours en Tournugeois Collonge (La Chapelle sous Brancion (71)).
 
 2023 : Village des alternatives à Fragnes (71), jardins partagés Neuvy Grand Champ (71), Fête du terroir St Germain des bois (71), Fête de l’école St Ythaire (71), foyers pour migrants Chalon sur Saône (71), Festival des soupes à Tournus (71).
 
@@ -17,11 +17,11 @@ Quelques manifestations passées :
 
 2020 : Marché de Donzy le National (71).
 
-2019 : Marathon des vins Givry, Ferme de Vernand à Fournaux (42), Cour en fête a Ameugny (71), Fanfares et spaghettis à Nancy (54), tournée dans le nord Etaples, Montreuil sur mer, Merlimont, Huqueliers, Neuville sous Montreuil (62), Nouvelles passions à Chevagny sur Guye (71), Fête de St Nicolas à Nancy (54).
+2019 : Marathon des vins Givry, Ferme de Vernand à Fournaux (42), Cour en fête à Ameugny (71), Fanfares et spaghettis à Nancy (54), Fête de la vigne à Givry (71), tournée dans le nord Etaples, Montreuil sur mer, Merlimont, Huqueliers, Neuville sous Montreuil (62), Nouvelles passions à Chevagny sur Guye (71), Fête de la St Nicolas à Nancy (54).
 
 2018 : Bal AK Clermont Ferrand (63), Gourmanziks à St Gengoux le National (71), 30 ans de festival au village à Brioux sur Boutonne (79), Cluny Jazz Campus en Clunisois à Matour (71).
 
-2017 : Kiosque des Quinconces à Bourg en Bresse (01), (et 2019) Fête de la vigne Givry (71), Septembre imaginaire à Cluny (71), Symphonie des soupes au Creusot (71).
+2017 : Kiosque des Quinconces à Bourg en Bresse (01), Fête de la vigne à Givry, Septembre imaginaire à Cluny (71), Symphonie des soupes au Creusot (71).
 
 2016 : Roulottes en chantiers à Sennecey le Grand (71) Les sorcières en foire à Mâlain (21), tournée de 5 jours à Royan (17), inauguration du premier cabinet municipal de poésie avec Jean Bojko à Mâlin.
 
