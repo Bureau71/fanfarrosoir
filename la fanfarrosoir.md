@@ -12,7 +12,7 @@ Nous pouvons jouer en fixe ou en déambulation, nous nous adaptons à toutes les
 ![Texte décrivant l'image]({% link images/Fanf1.jpg %})
  
 
-Ce que nous préférons, c'est jouer pour des rencontres festives, inaugurales, conviviales, jouer sur les marchés, dans les jardins, les parcs... partout pour des bonnes causes. 
+Ce que nous préférons, c'est jouer pour des rencontres festives, inaugurales, conviviales, jouer sur les marchés, dans les jardins, les parcs... et pour des causes qui nous défendons. 
 Chaque année, nous organisons également, dans des villages du Clunisois une livraison de musique à domicile, dans les jardins de ceux qui le souhaitent.  
 
 Pour vos oreilles voici le lien du roi de la jongle : https://on.soundcloud.com/GTuWUnWPefGysPoN6
