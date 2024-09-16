@@ -5,7 +5,7 @@ in_menu: true
 ---
 Quelques manifestations passées :
 
-![Texte décrivant l'image]({% link images/Fanf2.jpg %})
+![Texte décrivant l'image]({% link images/7 on a joué Fanf2.jpg %})
 
 2024 : Mathia Big Band avec la chorale l’autre atelier à Chalon sur Saône, St Germain les Buxy et Cortambert (71), fête de l’été au Breuil (71), Chevagny nouvelles passions à Chevagny sur Guy (71), festival Détours en Tournugeois Collonge (La Chapelle sous Brancion (71)).
 
