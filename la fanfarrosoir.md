@@ -3,7 +3,7 @@ title: "La Fanfarrosoir"
 order: 1
 in_menu: true
 ---
-La Fanfarrosoir est née avec le siècle, en l’an 2000, sur l’initiative de deux musiciens de la Bête à bon dos, également membres de l’ARFI (Association à la Recherche d’un Folklore Imaginaire) de Lyon, les saxophonistes Alain Rellay (décédé en 2018) et Jean-Paul Autin. Elle a vu le jour sous l’égide de l’Arrosoir, à Chalon (un lieu de jazz et musiques de traverse) qui a fait connaître son existence auprès des musiciens du département et lui a offert d’héberger ses  répétitions durant les premières années.  C’est d’ailleurs en référence à ce lieu aujourd’hui disparu,  dont elle fut une fidèle compagne de route, qu’elle a choisi son nom, qui est la contraction de fanfare et d’arrosoir.
+La Fanfarrosoir est née avec le siècle, en l’an 2000, sur l’initiative de deux musiciens de la Bête a bon dos, également membres de l’ARFI (Association à la Recherche d’un Folklore Imaginaire) de Lyon, les saxophonistes Alain Rellay (décédé en 2018) et Jean-Paul Autin. Elle a vu le jour sous l’égide de l’Arrosoir, à Chalon (un lieu de jazz et musiques de traverse) qui a fait connaître son existence auprès des musiciens du département et lui a offert d’héberger ses  répétitions durant les premières années.  C’est d’ailleurs en référence à ce lieu aujourd’hui disparu,  dont elle fut une fidèle compagne de route, qu’elle a choisi son nom, qui est la contraction de fanfare et d’arrosoir.
 
 ![Texte décrivant l'image]({% link images/2 Fanf1.jpg %})
  
