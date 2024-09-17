@@ -35,4 +35,10 @@ Quelques manifestations passées :
 
 2011 : Tournée de l’Epicerie Culturelle dans la Nièvre (Nevers et villages) (58), Festival de soupe à Chalon, Fête des feuilles à Lyon (69).
 
-2010 : Festival de Lournand (71), Quartier de lune Chalon sur Saône (71), Fête des illuminations à Cluny (71). 
+2010 : Quartier de lune Chalon sur Saône (71), Fête des illuminations à Cluny (71).
+
+2009 : pour les sans-papiers aux Cellier des Moines à Tournus (71), Festi’Lux - Arts Matures à Lux (71), soutien contre un projet de pylône à Morlay (71).
+
+2008 : salle des Griottons pendant l’entracte Ogres de Barback / les Sardines Epanouies à Cluny (71), Festival des Chouettes à Arbigny (01), la guinguette au festival de Lournand (71).
+
+2007 : clôture de la Tournée des Enclumés à Cuisery-Ratenelle (71), soutien à une association contre les maladies mentales au marché de Cluny (71), journée d’Attac à La Roche Vineuse (71). 
