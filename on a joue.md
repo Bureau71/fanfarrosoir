@@ -9,7 +9,7 @@ Quelques manifestations passées :
 
 2024 : Mathia Big Band avec la chorale l’autre atelier à Chalon sur Saône, St Germain les Buxy et Cortambert (71), fête de l’été au Breuil (71), Chevagny nouvelles passions à Chevagny sur Guy (71), festival Détours en Tournugeois Collonge (La Chapelle sous Brancion (71)).
 
-2023 : Village des alternatives à Fragnes (71), jardins partagés Neuvy Grand Champ (71), Fête du terroir St Germain des bois (71), Fête de l’école St Ythaire (71), foyers pour migrants Chalon sur Saône (71), Festival des soupes à Tournus (71).
+2023 : Village des alternatives à Fragnes (71), jardins partagés Neuvy-Grandchamp (71), Fête du terroir St Germain des bois (71), Fête de l’école St Ythaire (71), foyers pour migrants Chalon sur Saône (71), Festival des soupes à Tournus (71).
 
 2022 : Fête des Jonquilles à Sigy le Chatel (71), Marathon des vins de la côte chalonnaise à Rully (71), Les arts en campagne à St Jean de vaux (71), Fedestival des foyers ruraux à La Chapelle sous Brancion (71), Accro bath à Bergesserin (71), Tournée d’alimentation générale Nevers et ses environs (58),  Rencontres intersite du dispositif "Un chez soi d’abord" à Dijon (21), festival "Sème ton Cirque" à St Julien de Civry (71), café associatif et jardins partagés à Tournus (71), fête de la musique de Montchanin (71), les vingt ans de la Pekno Parade à Aouste (26), inauguration de la Pimenterie (lieu de concerts et résidence) à St Point (71).
 
@@ -31,7 +31,7 @@ Quelques manifestations passées :
 
 2013 : Cavalcade de Saint Gengoux le national (71), Le grand Tut Tut à Corbigny (58), Festival des soupes à Tournus, Parade d’ouverture de Contes et Lumières à Macon (71), tournée au Bénin (18 jours).
 
-2012 : Marché de noël à Chalon, Carnaval à Dompierre les Ormes (71), Balade gourmande Bray (71), coupe du monde des Fanfares Dole (39), Jardins en fête Tramailles,  Festival les conviviales à Nanay (58).
+2012 : Marché de noël à Chalon, Carnaval à Dompierre les Ormes (71), Balade gourmande Bray (71), coupe du monde des Fanfares Dole (39), Jardins en fête Tramayes,  Festival les conviviales à Nanay (58).
 
 2011 : Tournée de l’Epicerie Culturelle dans la Nièvre (Nevers et villages) (58), Festival de soupe à Chalon, Fête des feuilles à Lyon (69).
 
