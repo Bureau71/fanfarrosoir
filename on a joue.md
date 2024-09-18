@@ -35,7 +35,7 @@ Quelques manifestations passées :
 
 2011 : Tournée de l’Epicerie Culturelle dans la Nièvre (Nevers et villages) (58), Festival de soupe à Chalon, Fête des feuilles à Lyon (69).
 
-2010 : Quartier de lune Chalon sur Saône (71), Fête des illuminations à Cluny (71).
+2010 : Quartier de lune Chalon sur Saône (71), Fête des illuminations à Cluny (71), journée "porte ouverte" Jardin de Cocagne à Mâcon (71), fête des 150 ans de la fanfare de Volnay (21).
 
 2009 : pour les sans-papiers aux Cellier des Moines à Tournus (71), Festi’Lux - Arts Matures à Lux (71), soutien contre un projet de pylône à Morlay (71).
 
