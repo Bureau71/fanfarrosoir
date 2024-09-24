@@ -51,7 +51,6 @@ Et ce depuis un quart de siècle !
 Pour vos oreilles : [le roi de la jongle](https://on.soundcloud.com/GTuWUnWPefGysPoN6)
 
 
-[Lien vidéo :] (https://www.facebook.com/alimentation.generale.culturelle/videos/603393951099918/)
+[Lien vidéo](https://www.facebook.com/alimentation.generale.culturelle/videos/603393951099918/)
 
-[Lien presse :]
-(https://www.lejdc.fr/champlemy-58210/actualites/tut-tut-lepicerie-generale-est-passee_14161395/) 
+[Lien presse](https://www.lejdc.fr/champlemy-58210/actualites/tut-tut-lepicerie-generale-est-passee_14161395/) 
