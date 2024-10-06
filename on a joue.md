@@ -7,7 +7,7 @@ Quelques manifestations passées :
 
 ![Texte décrivant l'image]({% link images/7 on a joué Fanf2.jpg %})
 
-2024 : Mathia Big Band avec la chorale l’autre atelier à Chalon sur Saône, St Germain les Buxy et Cortambert (71), fête de l’été au Breuil (71), Chevagny nouvelles passions à Chevagny sur Guy (71), festival Détours en Tournugeois Collonge (La Chapelle sous Brancion (71)).
+2024 : Mathia Big Band avec la chorale l’autre atelier à Chalon sur Saône, St Germain les Buxy et Cortambert (71), fête de l’été au Breuil (71), Chevagny nouvelles passions à Chevagny sur Guy (71), festival Détours en Tournugeois Collonge (La Chapelle sous Brancion (71)), Le samedi 5 octobre de 12 h à 12 h 30 puis de 14 h à 15 h (ou 16 h), association villages solidaires à Montmellard (71).
 
 2023 : Village des alternatives à Fragnes (71), jardins partagés Neuvy-Grandchamp (71), Fête du terroir St Germain des bois (71), Fête de l’école St Ythaire (71), foyers pour migrants Chalon sur Saône (71), Festival des soupes à Tournus (71).
 
@@ -22,6 +22,7 @@ Quelques manifestations passées :
 2018 : Bal AK Clermont Ferrand (63), Gourmanziks à St Gengoux le National (71), 30 ans de festival au village à Brioux sur Boutonne (79), Cluny Jazz Campus en Clunisois à Matour (71).
 
 2017 : Kiosque des Quinconces à Bourg en Bresse (01), Fête de la vigne à Givry, Septembre imaginaire à Cluny (71), Symphonie des soupes au Creusot (71), inauguration du premier cabinet municipal de poésie avec Jean Bojko à Mâlin.
+
 2016 : Roulottes en chantiers à Sennecey le Grand (71) Les sorcières en foire à Mâlain (21), tournée de 5 jours à Royan (17).
 
 2015 : Carnaval de Montmorillon (86), Festival de film d’animation à Bonnay (71), Printemps du handicap à Macon, Fête des soupes à tournus, journées Alternatiba 71 à Sancé (71) et contre le projet du Center Parc au Rousset (71).
