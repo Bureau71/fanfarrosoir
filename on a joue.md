@@ -15,7 +15,7 @@ Quelques manifestations passées :
 
 2021 : CHS de Sevrey (71), Jardins partagés Roanne (42), Festival des solutions écologiques à Tramayes (71), MAS de Bergesserin (71), marché de Chalon sur Saône.
 
-2020 : Marché de Donzy le National (71).
+2020 : Marché de Donzy le National (71), fête de la mobilité avec La Vie-cyclette à Cluny et à La Guiche (71) .
 
 2019 : Marathon des vins de Givry, Ferme de Vernand à Fournaux (42), Cour en fête à Ameugny (71), Fanfares et spaghettis à Nancy (54), Fête de la vigne à Givry (71), tournée dans le nord Etaples, Montreuil sur mer, Merlimont, Huqueliers, Neuville sous Montreuil (62), Nouvelles passions à Chevagny sur Guye (71), Fête de la St Nicolas à Nancy (54).
 
