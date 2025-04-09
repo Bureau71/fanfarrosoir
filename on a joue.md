@@ -7,6 +7,8 @@ Quelques manifestations passées :
 
 ![Texte décrivant l'image]({% link images/7 on a joué Fanf2.jpg %})
 
+2025 : festival de la pierre à Saint-Privé (71)
+
 2024 : festival Alimenterre à Cuisery (71), Mathia Big Band avec la chorale l’autre atelier à Chalon sur Saône (71), St Germain les Buxy et Cortambert (71), fête de l’été au Breuil (71), Chevagny nouvelles passions à Chevagny sur Guy (71), festival Détours en Tournugeois Collonge (La Chapelle sous Brancion (71)).
 
 2023 : Village des alternatives à Fragnes (71), jardins partagés Neuvy-Grandchamp (71), Fête du terroir St Germain des bois (71), Fête de l’école St Ythaire (71), foyers pour migrants Chalon sur Saône (71), Festival des soupes à Tournus (71).
