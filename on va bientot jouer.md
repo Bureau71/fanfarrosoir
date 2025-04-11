@@ -5,7 +5,7 @@ in_menu: true
 ---
 Le vendredi 9 mai (dans le début de soirée) à la Grange Café de Jalogny (71)
 
-Le samedi 24 mai de 14 h à 17 h au marché d’artisans et de producteurs locaux à Masille (71)
+Le samedi 24 mai de 14 h à 17 h au marché d’artisans et de producteurs locaux à Mazille (71)
 
 Le samedi 7 juin à 18 h 30 festival cirque et musique à Gigny sur Saône (71)
 
