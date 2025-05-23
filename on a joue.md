@@ -7,7 +7,7 @@ Quelques manifestations passées :
 
 ![Texte décrivant l'image]({% link images/7 on a joué Fanf2.jpg %})
 
-2025 : festival de la pierre à Saint-Privé (71)
+2025 : Grange Café de Jalogny (71), festival de la pierre à Saint-Privé (71)
 
 2024 : festival Alimenterre à Cuisery (71), Mathia Big Band avec la chorale l’autre atelier à Chalon sur Saône (71), St Germain les Buxy et Cortambert (71), fête de l’été au Breuil (71), Chevagny nouvelles passions à Chevagny sur Guy (71), festival Détours en Tournugeois Collonge (La Chapelle sous Brancion (71)).
 
