@@ -19,3 +19,7 @@ fab.baudin@orange.fr
 Michel Gillot
 06 75 28 96 95
 gillotmichel71@outlook.fr 
+
+Philippe Bureau
+06 79 50 09 17
+phbureau2@wanado.fr 
