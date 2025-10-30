@@ -9,6 +9,9 @@ Quelques manifestations passées :
 
 <a href="https://www.youtube.com/watch?v=L12zNco74UM" target="_blank">Cliquez sur le lien pour la vidéo de la Fanfarrosoir réalisée en juin 2025</a>
 
+<a href="https://https://www.youtube.com/watch?v=fiECudF291U" target="_blank">Cliquez sur le lien pour la vidéo de la Fanfarrosoir réalisée en mai 2017</a> 
+
+
 2025 : festival sous l’Barnum organisé par le Petit Théâtre du Bat de l'âne à Saint Jean de Trézy (71), Festigrim à Cortevaix (71), musiques et rencontres avec les migrants à la Méandre Chalon sur Saône (71), fanfares et spaghettis à la MJC l’Illebonne à Nancy (54), festival arts de la rue à Gigny sur Saône (71), inauguration place de Buffières (71), marché d’artisans à la maison familiale et rurale de Mazille (71), Grange Café de Jalogny (71), festival de la pierre à Saint-Privé (71)
 
 2024 : festival Alimenterre à Cuisery (71), Mathia Big Band avec la chorale l’autre atelier à Chalon sur Saône (71), St Germain les Buxy et Cortambert (71), fête de l’été au Breuil (71), Chevagny nouvelles passions à Chevagny sur Guy (71), festival Détours en Tournugeois Collonge (La Chapelle sous Brancion (71)).
