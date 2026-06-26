@@ -11,7 +11,7 @@ La Fanfarrosoir est née avec le siècle, en l’an 2000, sur l’initiative de 
 ![Texte décrivant l'image]({% link images/2 Fanf1.jpg %})
  
 
-La Fanfarrosoir regroupe environ 25 musiciens basés en Saône-et-Loire. Ils se retrouvent régulièrement pour répéter à Cortambert, dans la salle que le Foyer Rural met gracieusement à leur disposition. A vingt-cinq ans, donc en pleine jeunesse, c’est une fanfare jardinière bio, sans aucun adjuvant, au répertoire frais et dansant, constitué d’airs traditionnels et de musiques du monde, auxquels s’ajoutent des compositions de musiciens issus des musiques de jazz d’aujourd’hui, marquées par leurs multiples métissages. Tous ces morceaux sont arrangés ou réarrangés pour la Fanfarrosoir par Jean-Paul Autin. 
+La Fanfarrosoir regroupe une vingtaine musiciens basés en Saône-et-Loire. Ils se retrouvent régulièrement pour répéter à Cortambert, dans la salle que le Foyer Rural met gracieusement à leur disposition. A un peu plus de vingt-cinq ans, donc en pleine jeunesse, c’est une fanfare jardinière bio, sans aucun adjuvant, au répertoire frais et dansant, constitué d’airs traditionnels et de musiques du monde, auxquels s’ajoutent des compositions de musiciens issus des musiques de jazz d’aujourd’hui, marquées par leurs multiples métissages. Pratiquement tout ces morceaux sont arrangés ou réarrangés pour la Fanfarrosoir par Jean-Paul Autin. 
 
 D’emblée, la Fanfarrosoir a cherché une cohérence entre son  projet artistique et son projet « politique », au sens noble du terme. Son projet artistique est celui d’une fanfare directe d’accès mais non simpliste. Elle a ainsi choisi de ne pas piocher dans la variété où la reprise d’airs célèbres. Son but est de faire entendre de belles musiques d’aujourd’hui, souvent méconnues, mais dont le caractère frais et rythmé peut toucher spontanément tous les publics, de l’amateur au non averti.
 
@@ -27,7 +27,7 @@ Elle a également joué pour différents festivals des soupes (Le Creusot, Tourn
 
 A plusieurs reprises, elle a  organisé de son propre chef des opérations baptisées Allo Fanfare.  Dans un village et ses hameaux, les particuliers avaient pu auparavant nous contacter pour commander la livraison de la Fanfarrosoir à domicile,  dans leur jardin. A charge pour eux d’y inviter voisins et amis, afin que chaque concert ne soit tout de même pas trop confidentiel. Ce furent toujours de très belles et sympathiques opérations.
 
-Dans cet esprit, la Fanfarrosoir a accumulé depuis près de 25 ans une liste impressionnante de prestations, dans les lieux et les contextes les plus divers.
+Dans cet esprit, la Fanfarrosoir a accumulé depuis plus de 25 ans une liste impressionnante de prestations, dans les lieux et les contextes les plus divers.
 
 
 Le deuxième aspect du projet politique de la Fanfarrosoir, c’est d’aller dans des lieux peuplés de ce que les institutions nomment « des publics empêchés ». Là, nous avons  souvent rencontré des personnes chez qui notre musique entrait en résonnance plus fort que partout ailleurs, et nullement empêchée par quoi que ce soit, nous faisant vivre à tous, musiciens et auditeurs, des moments rares et d’une grande intensité.
@@ -48,7 +48,7 @@ On peut citer encore les rencontres avec la fanfare la Pekno de Crest (26) en 20
 
 Bref, la Fanfarrosoir est une fanfare buissonnière, comme l’école du même nom,  c’est-à-dire que  ses plus grandes réussites ne se traduisent pas par la remise de prix d’excellence mais par les nombreux instants de bonheur partagé lors de ses concerts.
 
-Et ce depuis un quart de siècle !
+Et ça continue !
 
 
 
