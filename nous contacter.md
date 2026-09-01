@@ -16,6 +16,6 @@ Michel Gillot
 06 75 28 96 95
 gillotmichel71@outlook.fr 
 
-Philippe Bureau (violon à pavillon)  
+Philippe Bureau (contact pour les violons à pavillon)  
 06 79 50 09 17
 phbureau2@wanado.fr 
